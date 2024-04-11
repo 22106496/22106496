@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @22106496
-- 👀 I’m interested in photography, digital marketing and social media
+- 👋 Hi, I’m @22106496 (Becca)
+- ❤️‍🔥 I’m interested in photography, digital marketing and social media
 - 🌱 I’m currently learning digital technology, photography and media
-- 💞️ I’m looking to collaborate (n/a)
-- 📫 How to reach me (n/a)
-- 😄 Pronouns: she/her
+- 🥳 Future Bangor Uni student!!
+- 💖 Pronouns: she/her
 - ⚡ Fun fact: I've always wanted a pet gecko <3
 
 <!---
